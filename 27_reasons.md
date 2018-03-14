@@ -34,7 +34,24 @@ Dad
 
 **2. Chris Feiler**
 
-	Happy birthday young Samuel Robert Chihuahua!!! You are 22 years of age. You can now legally apply to adopt a child, how exciting!! I'm sure you've had some crazy and unforgettable times in the past 22 years and I'm glad I've got to make some mems with you for the past 3. Allow me to share some mems with you now: it was the very first night of frosh week for the wide-eyed 18 year old Christian Feiler. Hopes were high for my very first college party. The cloister backyard moisture was all very novel, and I was having the time of my life. This is where you come in. Some weirdo attacked me and berated me for not accepting his friend request on Facebook. At the time, I thought this was just some mentally feeble, possibly deranged Princeton student that mistook me for someone else. Oh, how I was wrong. It turned out to be none other than Mr. Sam Chiacchia -- the arch tennis rival of my dear cousin Aidan. From then on we've began forming some unforgettable memories. From the time you and Yaz came to boulder for a day trip and convinced me to buy last minute tickets to Flume for my first red rocks show (you are responsible for turning me into a wook), to enjoying a nice hoagie and milk with the boys, we have had some great times. Enjoy the day and know we have some more great times ahead of us. Love you baby. Viel Glück zum Geburtstag!
+	Happy birthday young Samuel Robert Chihuahua!!! You are 22 years of age. You
+	can now legally apply to adopt a child, how exciting!! I'm sure you've had
+	some crazy and unforgettable times in the past 22 years and I'm glad I've got
+	to make some mems with you for the past 3. Allow me to share some mems with
+	you now: it was the very first night of frosh week for the wide-eyed 18 year
+  old Christian Feiler. Hopes were high for my very first college party. The
+	cloister backyard moisture was all very novel, and I was having the time
+	of my life. This is where you come in. Some weirdo attacked me and berated me
+	for not accepting his friend request on Facebook. At the time, I thought this
+	was just some mentally feeble, possibly deranged Princeton student that
+	mistook me for someone else.Oh, how I was wrong. It turned out to be none
+	other than Mr. Sam Chiacchia -- the arch tennis rival of my dear cousin Aidan.
+	From then on we've began forming some unforgettable memories. From the time
+	you and Yaz came to boulder for a day trip and convinced me to buy last minute
+	tickets to Flume for my first red rocks show (you are responsible for turning
+	me into a wook), to enjoying a nice hoagie and milk with the boys, we have
+	had some great times. Enjoy the day and know we have some more great times
+	ahead of us. Love you baby. Viel Glück zum Geburtstag!
 
 **3. Meaghan O’Neill**
 
