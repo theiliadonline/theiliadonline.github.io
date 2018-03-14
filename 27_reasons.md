@@ -55,13 +55,14 @@ times ahead of us. Love you baby. Viel Glück zum Geburtstag!
 
 **3. Meaghan O’Neill**
 
-	Re: Sam’s gift
+Re: Sam’s gift
 
-	When we ran into each other at the junior house in Puerto Rico and both lost our shit
+When we ran into each other at the junior house in Puerto Rico and both lost
+our shit
 
-	And we were so excited to see each other lmao
+And we were so excited to see each other lmao
 
-	Hbd Sam!!!!!!
+Hbd Sam!!!!!!
 
 **4. Scott Bechler**
 
