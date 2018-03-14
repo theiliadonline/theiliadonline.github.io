@@ -1,5 +1,4 @@
 **1. Noam Altman-Kurosaki**
-
 	Hey there QT,
 
 	How you doing. Eating right? Gawsh, you look like the skin's falling off of your bones. Hon, could you get our boy a burger? I swear, these days all people do is work work work...
