@@ -2,15 +2,32 @@
 
 Hey there QT,
 
-How you doing. Eating right? Gawsh, you look like the skin's falling off of your bones. Hon, could you get our boy a burger? I swear, these days all people do is work work work...
+How you doing. Eating right? Gawsh, you look like the skin's falling off of your
+bones. Hon, could you get our boy a burger? I swear, these days all people do is
+ work work work...
 
-Anyway, Almog told me to send you some corny shit, so I had to get a few drinks in me first.
+Anyway, Almog told me to send you some corny shit, so I had to get a few drinks
+ in me first.
 
-But actually, happy birthday, big boy. You'll probably never hear it from anyone else, but thank you for keeping the team together the past couple of years. Shit could've fallen apart way worse than they did, but if divers didn't step up, we'd essentially have two separate teams. God knows the swimmers won't do shit to reach out.
+But actually, happy birthday, big boy. You'll probably never hear it from anyone
+ else, but thank you for keeping the team together the past couple of years.
+ Shit could've fallen apart way worse than they did, but if divers didn't step
+ up, we'd essentially have two separate teams. God knows the swimmers won't do
+ shit to reach out.
 
-Moving on to other shit, I remember seeing you do some gymnastic shit during Clash of the Colleges your Freshman year, and thinking "that guy could probably walk on." Luckily Adam and Lewis had my back, and spoke to you before I even knew your name. Since then, you've gone from untapped potential, to qualifying for zones, to actually competing at zones; my body burnt our before I could get to that last bit. That's a big accomplishment for anyone, let alone someone that's only been in the sport for a few years.
+Moving on to other shit, I remember seeing you do some gymnastic shit during
+Clash of the Colleges your Freshman year, and thinking "that guy could probably
+walk on." Luckily Adam and Lewis had my back, and spoke to you before I even
+knew your name. Since then, you've gone from untapped potential, to qualifying
+for zones, to actually competing at zones; my body burnt our before I could get
+ to that last bit. That's a big accomplishment for anyone, let alone someone
+ that's only been in the sport for a few years.
 
-I guess what I'm trying to say is I'm extremely proud of how far you'e come. Just by showing up to that first pre-game after you joined the team, I knew you would become a leader in your own right. Admittedly, that's a shitty metric, but if it works, it works. Congrats on retirement. When you're rich, come visit me in Hawaii some time. Or wherever. Seriously, I'm lonely. Just roll through.
+I guess what I'm trying to say is I'm extremely proud of how far you'e come.
+Just by showing up to that first pre-game after you joined the team, I knew you
+ would become a leader in your own right. Admittedly, that's a shitty metric,
+ but if it works, it works. Congrats on retirement. When you're rich, come visit
+  me in Hawaii some time. Or wherever. Seriously, I'm lonely. Just roll through.
 
 XOXO,
 Dad
