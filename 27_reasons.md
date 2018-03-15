@@ -213,8 +213,6 @@ who can go from groundbreaking medical research to bumping Chill Bill while
 facing a bowl. Happy Birthday kid, love you to death and proud to call you a
 friend.
 
-**13. Michael Manhard**
-
 **14. Peter Holt**
 
 Sam,
@@ -238,7 +236,11 @@ this spring with ya.
 Sincerely,
 Peter
 
-**15. Sara Horne**
+**15. Michael Manhard**
+
+**16. Gina DiVittorio**
+
+**17. Sara Horne**
 
 Sam!!
 
@@ -255,7 +257,7 @@ forward to all the years of Catan to come.
 
 Sara
 
-**16. Chuck Kalvaria**
+**18. Chuck Kalvaria**
 
 cha, can’t believe its already been three years of knowing you. I remember
 freshman year you were just that random kid in our fantasy football league
@@ -264,7 +266,7 @@ all. Pledging with you was a blast. I remember walking back down washington
 just u and me and M&H because we had midterms the next day. That’s when we knew
 what we’d become. Great getting to know you buddy love you have a great day
 
-**17. Wyatt Navarro**
+**19. Wyatt Navarro**
 
 Happy birthday, samwise. We only have a few more months before the real world
 but I’m trying to spend as much of those months watching Taylor swift music
@@ -272,7 +274,7 @@ videos with the boys as possible. Congratulations on 4 years of successfully
 falling on your head and I hope you use some of your newfound free time to chill
 with your day ones. Enjoy your birthday, bro.
 
-**18. Colleen McHugh**
+**20. Colleen McHugh**
 
 Remember when we went to the Taylor Swift concert? I was always a fan, so when
 you invited me I was super excited. Of course, when we got there and found our
@@ -283,12 +285,12 @@ better and weirder and tighter from then, so thanks for opening that door. You
 are a brother to me, something that has been incredibly special and valuable to
 me during our time here. Much love, Colleen.
 
-**19. Michael Sheldon**
+**21. Michael Sheldon**
 
 Ya sorry it took so long I've been on a bender this weekend but just tell him I
 said lemme get uhhhhhh happy birthday, boi!
 
-**20. Gordon Moore**
+**22. Gordon Moore**
 
 Two summers ago I rented a house in Boston with a Harvard Masters student I
 didn’t know (and his little brother), a Berkeley lightweight rower I didn’t
@@ -302,7 +304,9 @@ run to Felipe’s and jp licks, I knew that when I left work I was going to be
 having an amazing time. Sam single-handedly got me through the workday every day
 for eight weeks. Love you Cha and have an amazing birthday.
 
-**21. Tyler Kaye**
+**23. Aimee Foster**
+
+**24. Tyler Kaye**
 
 Love you boy. Cant wait for the next few weeks to help you understand how great
 the NARP life can be. We have had some awesome times and I can’t wait for many
@@ -312,7 +316,7 @@ infectious and I can’t wait for many more (plus I still thank you every day fo
 being the only one to tell a tame story of me at dinner with my parents in
 Colorado).
 
-**22. Zach Ridout**
+**25. Zach Ridout**
 
 Salutations,
 
@@ -337,17 +341,20 @@ https://www.youtube.com/watch?v=fGj77BrEgj4
 XOXOX
 Zach
 
+**26. Jess Hendricks**
+happy birthday sam! I can’t believe it’s been four years since we were getting
+drunk in our parents basements and hydroplaning in clifford while jammin our to
+our girl t.swift. 22 looks good on you! have another fun trip around the sun :^)
+xx jess!
 
-**22. Aaron Ach**
+**27. Aaron Ach**
 
 Call for help if you stoop to the litterbox <3 -Aaron
 
-**24. Jess Hendricks**
+**28. Jess Buller**
 
-**25. Jess Buller**
+**29. Katrin/Sandy**
 
-**26. Gina Divittorio**
-
-**3. Yasmeen Almog**
+**30. Yasmeen Almog**
 
 [Happy 22nd birthday, my love.](https://theiliadonline.github.io/open_letter)
