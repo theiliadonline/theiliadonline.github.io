@@ -4,7 +4,7 @@
 @import "{{ site.theme }}";
 
 header {
-  <img src="/odyssey_icon.png" alt="Odyssey Icon" width="32" height="32" />
+  img: <img src="/odyssey_icon.png" alt="Odyssey Icon" width="32" height="32"/>;
   position: fixed;
   top: 50;
   width: 100%;
