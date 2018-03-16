@@ -1,3 +1,5 @@
+# 30 Ways to Tell if Your Friends Give a Shit About You
+
 **1. Noam Altman-Kurosaki**
 
 Hey there QT,
