@@ -291,6 +291,18 @@ for eight weeks. Love you Cha and have an amazing birthday.
 
 **21. Aimee Foster**
 
+Happy birthday my darling, Sam! I wish you all the happiness in the world for
+this next year! You are such a sensational human being, and I am beyond grateful
+for your friendship every day.
+
+Thank you for always being such a joy within our pack. You make all of us
+better. And if you were to ever lead a cult, I would totally follow.
+
+So much love for you and best wishes for your birthday!
+
+RatFlok 4 lyfe
+
+ - Aimee
 **22. Tyler Kaye**
 
 Love you boy. Cant wait for the next few weeks to help you understand how great
