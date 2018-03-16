@@ -2,9 +2,9 @@
   Popular on The Iliad Online:
 </div></h1>
 
-<a href="https://theiliadonline.github.io/30_reasons">
+<a href="https://theiliadonline.github.io/30_reasons"><div class="art1img">
   <img src="/sam_collage.jpg" alt="Sam with friends" width="600" height="391" />
-</a>
+</div></a>
 <h2><a href="https://theiliadonline.github.io/30_reasons"><div class="art1title">
   30 Ways to Tell if Your Friends Give a Sh*t About You
 </div></a><h2>
