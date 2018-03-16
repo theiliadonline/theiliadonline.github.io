@@ -3,6 +3,11 @@
 
 @import "{{ site.theme }}";
 
+@font-face {
+  font-family: "abril";
+  src: url("/css/fonts/AbrilFatface-Regular.otf");
+}
+
 header {
   position: fixed;
   top: 0;
@@ -22,7 +27,7 @@ header {
 }
 
 .site_title {
-  font-family: "Calisto MT", serif;
+  font-family: "abril";
   font-weight: 100;
   font-size: 24;
   padding-top: 15px;
@@ -40,6 +45,7 @@ header {
 
 .art1title {
   padding-top: 0px;
+  padding-bottom: 10px;
   width: 400px;
 }
 
