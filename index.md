@@ -1,6 +1,6 @@
-<div class="popular">
-  <h1>Popular on The Iliad Online:</h1>
-</div>
+<h1><div class="popular">
+  Popular on The Iliad Online:
+</div></h1>
 
 <a href="https://theiliadonline.github.io/30_reasons">
   <img src="/sam_collage.jpg" alt="Sam with friends" width="600" height="391" />
