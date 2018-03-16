@@ -1,6 +1,7 @@
 <img src="/sam_collage.jpg" alt="Sam with friends" width="600" height="391" />
 
 <h1><div class="article1_head"> 30 Ways to Tell if Your Friends Give a Sh*t About You</div></h1>
+No, but seriously. They really, really, really love you.
 
 ## **1. Noam Altman-Kurosaki**
 Hey there QT,
