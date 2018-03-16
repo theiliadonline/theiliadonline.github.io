@@ -3,11 +3,6 @@
 
 @import "{{ site.theme }}";
 
-@font-face {
-    font-family: abril;
-    src: url(/AbrilFatface-Regular.tff);
-}
-
 header {
   position: fixed;
   top: 0;
@@ -37,7 +32,7 @@ header {
 }
 
 .popular {
-  font-family: abril;
+  font-family: Impact;
 }
 
 h1 {
