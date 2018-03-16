@@ -1,4 +1,4 @@
-img src="/sam_and_me.jpg" alt="Sam with me" width="600" height="391" />
+<img src="/sam_and_me.jpg" alt="Sam with me" width="600" height="391" />
 # An Open Letter To My BF On His Taylor Swift Birthday
 
 Happy 22nd birthday, my love.

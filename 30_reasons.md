@@ -2,7 +2,6 @@
 # 30 Ways to Tell if Your Friends Give a Sh*t About You
 
 ## **1. Noam Altman-Kurosaki**
-
 Hey there QT,
 
 How you doing. Eating right? Gawsh, you look like the skin's falling off of your
