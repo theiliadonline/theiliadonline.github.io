@@ -8,9 +8,8 @@ header {
   top: 0;
   left: 0;
   width: 100%;
-  font-family: "Calisto MT", serif;
-  font-weight: 50;
   border-bottom-style: solid;
+  border-color: (0, 0, 0, .5);
   background-color: rgba(255, 255, 255, 0.5);
 }
 
@@ -23,6 +22,8 @@ header {
 .site_title {
   top: 50%;
   width: 30%;
+  font-family: "Calisto MT", serif;
+  font-weight: 100;
   font-size: 32;
   float: left;
 }
