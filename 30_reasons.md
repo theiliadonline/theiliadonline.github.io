@@ -36,7 +36,7 @@ me in Hawaii some time. Or wherever. Seriously, I'm lonely. Just roll through.
 XOXO,
 Dad
 
-**2. Chris Feiler**
+## **2. Chris Feiler**
 
 Happy birthday young Samuel Robert Chihuahua!!! You are 22 years of age.
 You can now legally apply to adopt a child, how exciting!! I'm sure you've
@@ -57,7 +57,7 @@ turning me into a wook), to enjoying a nice hoagie and milk with the boys,
 we have had some great times. Enjoy the day and know we have some more great
 times ahead of us. Love you baby. Viel Glück zum Geburtstag!
 
-**3. Meaghan O’Neill**
+## **3. Meaghan O’Neill**
 
 Re: Sam’s gift
 
@@ -68,7 +68,7 @@ And we were so excited to see each other lmao
 
 Hbd Sam!!!!!!
 
-**4. Scott Bechler**
+## **4. Scott Bechler**
 
 What’s up dude. Happy fuckin birthday. Remember that night of reunions when you
 got punched in the face and then later were pulling trig and projectile vomiting
@@ -82,7 +82,7 @@ Southeast Asia post grad, it’s gonna be jokes.
 Much Love,
 Bechler
 
-**5. Alex Lewis**
+## **5. Alex Lewis**
 
 It’s been so much fun being weird with you these last four years. Everyone has
 something to bring to the party: some people bring the newspaper, some people
@@ -92,7 +92,7 @@ Saturday night at 2 AM. And you’re the fire when I’m gasoline… and thats w
 we make some of the dumbest decisions ever. Good thing you can’t spell dumbest
 without -best, so let’s keep being childish fools. Happy birthday Sam!!
 
-**6. Alex Peters**
+## **6. Alex Peters**
 
 HBD brother, we old.
 
@@ -113,14 +113,14 @@ the Citadel Mall with Cole Long.
 Proud of you homie, happy birthday.
 Love, AP
 
-**7. Chris Grubbs**
+## **7. Chris Grubbs**
 
 Happy birthday Cha! Has been incredible being friends with you over the years.
 From our time on west Windsor, to finding the that good good on the beach in the
 DR, to Jackson hole, our friendship has incredible memories that I won't soon
 forget! 😘😘
 
-**8. Mark Goldstein**
+## **8. Mark Goldstein**
 
 Most people refer to long-lasting friendships at Princeton as “Day 1”
 friendships, and our friend group even has a “Day 1’s” snap group, but Sam and
@@ -139,7 +139,7 @@ on our OA trip despite his addiction to antihistamines, and I’m excited to clo
 out our Princeton careers together, just like we started them. Happy 22 to the
 kid.
 
-**9. Will Haynes**
+## **9. Will Haynes**
 
 Dearest Samuel,
 
@@ -152,12 +152,12 @@ was just me actually).
 Thank you for all of the adventures. I’m excited to make more with you during
 our last few months at Princeton. Happy birthday brother, I love you.
 
-**10. Nathan Makarewicz**
+## **10. Nathan Makarewicz**
 
 Sam, what's good ho? I hope you're doing well and I can't wait to chill with you
 at reunions.  Happy birthday buddy. Finish this year strong
 
-**11. Grant Keating**
+## **11. Grant Keating**
 
 Some of my favorite memories with ChaCha are from two summers ago when he lived
 in Boston with Gordon. From weekly dinners and drinks at Felipe, to two hour pho
@@ -167,7 +167,7 @@ who can go from groundbreaking medical research to bumping Chill Bill while
 facing a bowl. Happy Birthday kid, love you to death and proud to call you a
 friend.
 
-**12. Peter Holt**
+## **12. Peter Holt**
 
 Sam,
 Happy birthday!  I hope it’s a great one, and you should definitely eat a lot of
@@ -190,7 +190,7 @@ this spring with ya.
 Sincerely,
 Peter
 
-**13. Michael Manhard**
+## **13. Michael Manhard**
 
 Yo dude,
 
@@ -219,7 +219,7 @@ Michael
 PS Yasmeen is pretty aight for setting this up. She hounded my ass to get me to
 write this on time (AKA she's a keeper).
 
-**14. Gina DiVittorio**
+## **14. Gina DiVittorio**
 
 Dear Sam,
 We weren't really friends in high school, but we are now and that's what's
@@ -229,7 +229,7 @@ Lord of the Rings with Sean Weller and Rachel Samuels and you coined the phrase,
 the odds of being from Colorado Springs you've turned out to be a great kid and
 I think you've got a lot of great stuff ahead of you.
 
-**15. Sara Horne**
+## **15. Sara Horne**
 
 Sam!!
 
@@ -246,7 +246,7 @@ forward to all the years of Catan to come.
 
 Sara
 
-**16. Chuck Kalvaria**
+## **16. Chuck Kalvaria**
 
 cha, can’t believe its already been three years of knowing you. I remember
 freshman year you were just that random kid in our fantasy football league
@@ -255,7 +255,7 @@ all. Pledging with you was a blast. I remember walking back down washington
 just u and me and M&H because we had midterms the next day. That’s when we knew
 what we’d become. Great getting to know you buddy love you have a great day
 
-**17. Wyatt Navarro**
+## **17. Wyatt Navarro**
 
 Happy birthday, samwise. We only have a few more months before the real world
 but I’m trying to spend as much of those months watching Taylor swift music
@@ -263,7 +263,7 @@ videos with the boys as possible. Congratulations on 4 years of successfully
 falling on your head and I hope you use some of your newfound free time to chill
 with your day ones. Enjoy your birthday, bro.
 
-**18. Colleen McHugh**
+## **18. Colleen McHugh**
 
 Remember when we went to the Taylor Swift concert? I was always a fan, so when
 you invited me I was super excited. Of course, when we got there and found our
@@ -274,12 +274,12 @@ better and weirder and tighter from then, so thanks for opening that door. You
 are a brother to me, something that has been incredibly special and valuable to
 me during our time here. Much love, Colleen.
 
-**19. Michael Sheldon**
+## **19. Michael Sheldon**
 
 Ya sorry it took so long I've been on a bender this weekend but just tell him I
 said lemme get uhhhhhh happy birthday, boi!
 
-**20. Gordon Moore**
+## **20. Gordon Moore**
 
 Two summers ago I rented a house in Boston with a Harvard Masters student I
 didn’t know (and his little brother), a Berkeley lightweight rower I didn’t
@@ -293,7 +293,7 @@ run to Felipe’s and jp licks, I knew that when I left work I was going to be
 having an amazing time. Sam single-handedly got me through the workday every day
 for eight weeks. Love you Cha and have an amazing birthday.
 
-**21. Aimee Foster**
+## **21. Aimee Foster**
 
 Happy birthday my darling, Sam! I wish you all the happiness in the world for
 this next year! You are such a sensational human being, and I am beyond grateful
@@ -307,7 +307,8 @@ So much love for you and best wishes for your birthday!
 RatFlok 4 lyfe
 
  - Aimee
-**22. Tyler Kaye**
+
+## **22. Tyler Kaye**
 
 Love you boy. Cant wait for the next few weeks to help you understand how great
 the NARP life can be. We have had some awesome times and I can’t wait for many
@@ -317,7 +318,7 @@ infectious and I can’t wait for many more (plus I still thank you every day fo
 being the only one to tell a tame story of me at dinner with my parents in
 Colorado).
 
-**23. Zach Ridout**
+## **23. Zach Ridout**
 
 Salutations,
 
@@ -342,26 +343,26 @@ https://www.youtube.com/watch?v=fGj77BrEgj4
 XOXOX
 Zach
 
-**24. Jess Hendricks**
+## **24. Jess Hendricks**
 happy birthday sam! I can’t believe it’s been four years since we were getting
 drunk in our parents basements and hydroplaning in clifford while jammin our to
 our girl t.swift. 22 looks good on you! have another fun trip around the sun :^)
 xx jess!
 
-**25. Aaron Ach**
+## **25. Aaron Ach**
 
 Call for help if you stoop to the litterbox <3 -Aaron
 
-**26. Jess Buller**
+## **26. Jess Buller**
 
-**27. Katrin**
+## **27. Katrin**
 
 Happy Birthday Sam!!! Its been awesome getting to know you better this year.
 Thanks so much for all the hilarious memories and awesome post games.
 
-**28. Liam Fitzgerald**
+## **28. Charlie Minns**
 
-**29. Jeff Williamson**
+## **29. Jeff Williamson**
 
 Dear Sam,
 It appears that you are now one year older relative to the last time I saw you.
@@ -411,6 +412,6 @@ we know.” – Ralph Waldo Emerson
 Always with love,
 Jeff
 
-**30. Yasmeen Almog**
+## **30. Yasmeen Almog**
 
-[Happy 22nd birthday, my love.](https://theiliadonline.github.io/open_letter)
+[I love you, biiitch. I ain't ever gon' stop lovin' you, biiiiiiitch](https://theiliadonline.github.io/open_letter)
