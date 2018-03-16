@@ -14,19 +14,21 @@ header {
 }
 
 .icon {
-  top: 50%;
-  width: 7%;
   float: left;
-  padding: 9px 16px;
+  padding-top: 10px;
+  padding-left: 16px;
+  padding-right: 5px;
+  padding-bottom: 5px;
 }
 
 .site_title {
-  top: 50%;
-  width: 30%;
   font-family: "Calisto MT", serif;
   font-weight: 100;
   font-size: 24;
-  padding: 9px 16px;
+  padding-top: 10px;
+  padding-left: 10px;
+  padding-right: 5px;
+  padding-bottom: 5px;
   float: left;
 }
 
