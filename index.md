@@ -1,4 +1,4 @@
-<a href="https://theiliadonline.github.io/27_reasons">
+<a href="https://theiliadonline.github.io/30_reasons">
   <img src="/sam_friends.jpg" alt="Sam with friends" width="500" height="500" />
 </a>
 ## [30 Ways to Tell if Your Friends Give a Sh*t About You](https://theiliadonline.github.io/27_reasons)
