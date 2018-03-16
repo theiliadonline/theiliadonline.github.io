@@ -1,5 +1,5 @@
 <img src="/sam_and_me.jpg" alt="Sam with me" width="600" height="391" />
-# An Open Letter To My BF On His Taylor Swift Birthday
+<h1><div class="article2_head"> An Open Letter To My BF On His Taylor Swift Birthday</div></h1>
 
 Happy 22nd birthday, my love.
 
