@@ -5,9 +5,9 @@
 <a href="https://theiliadonline.github.io/30_reasons">
   <img src="/sam_collage.jpg" alt="Sam with friends" width="600" height="391" />
 </a>
-<h2><a href="https://theiliadonline.github.io/30_reasons">
+<h2><a href="https://theiliadonline.github.io/30_reasons"><div class="art1title">
   30 Ways to Tell if Your Friends Give a Sh*t About You
-</a><h2>
+</div></a><h2>
 
 <a href="https://theiliadonline.github.io/open_letter">
     <img src="/sam_and_me.jpg" alt="Sam with me" width="600" height="391" />
