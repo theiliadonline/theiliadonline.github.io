@@ -12,4 +12,6 @@
 <a href="https://theiliadonline.github.io/open_letter">
     <img src="/sam_and_me.jpg" alt="Sam with me" width="600" height="391" />
 </a>
-## [An Open Letter To My BF On His Taylor Swift Birthday](https://theiliadonline.github.io/open_letter)
+<h2><a href="https://theiliadonline.github.io/open_letter">
+  An Open Letter To My BF On His Taylor Swift Birthday
+</a><h2>
