@@ -25,9 +25,9 @@ for zones, to actually competing at zones; my body burnt our before I could get
 
 I guess what I'm trying to say is I'm extremely proud of how far you'e come.
 Just by showing up to that first pre-game after you joined the team, I knew you
- would become a leader in your own right. Admittedly, that's a shitty metric,
- but if it works, it works. Congrats on retirement. When you're rich, come visit
-  me in Hawaii some time. Or wherever. Seriously, I'm lonely. Just roll through.
+would become a leader in your own right. Admittedly, that's a shitty metric,
+but if it works, it works. Congrats on retirement. When you're rich, come visit
+me in Hawaii some time. Or wherever. Seriously, I'm lonely. Just roll through.
 
 XOXO,
 Dad
@@ -148,7 +148,204 @@ was just me actually).
 Thank you for all of the adventures. I’m excited to make more with you during
 our last few months at Princeton. Happy birthday brother, I love you.
 
-**10. Jeff Williamson**
+**10. Nathan Makarewicz**
+
+Sam, what's good ho? I hope you're doing well and I can't wait to chill with you
+at reunions.  Happy birthday buddy. Finish this year strong
+
+**11. Grant Keating**
+
+Some of my favorite memories with ChaCha are from two summers ago when he lived
+in Boston with Gordon. From weekly dinners and drinks at Felipe, to two hour pho
+lunch breaks, to JP Licks Coffee Oreo, to blacking out on random Tuesday nights,
+every day we spent together was a blast. There are very few people in this world
+who can go from groundbreaking medical research to bumping Chill Bill while
+facing a bowl. Happy Birthday kid, love you to death and proud to call you a
+friend.
+
+**12. Peter Holt**
+
+Sam,
+Happy birthday!  I hope it’s a great one, and you should definitely eat a lot of
+beers.  I was thinking this week about my trip out to Colorado last summer;
+actually, I think about it a lot.  I know it was just a couple of days doing fun
+stuff, but it was great to meet your family and chill in the hot tub and in the
+mountains.  Most of all, I enjoyed hearing about all you have planned and where
+you want to go in medicine and in life.  You got some big dreams, buddy, but as
+you proved on Quandary, scaling mountains is what you do best.  I have no doubt
+you’ll crush the mountains you set for yourself moving forward, and I can’t wait
+until you get to the top and make a huge difference in this world.  If you ever
+need any help getting there, you know I’ll do everything I can to give you a
+hand (depending on the state of the Asian markets). I wouldn’t trade our
+friendship for anything, and I hope I’m always involved in whatever ridiculously
+cool thing you’re doing with your life.  You’re an incredible friend and you got
+a big heart.  I know neither of those things will ever change.  I hope this year
+is unbelievably special for you, and I’m looking forward to absolutely crushing
+this spring with ya.
+
+Sincerely,
+Peter
+
+**13. Michael Manhard**
+
+Yo dude,
+
+You're getting old. Just like me.
+
+But seriously, happy birthday! It's been too damn long since we've caught up,
+and I miss you. On top of that, it seems like a ton has happened since last
+time, so I'm looking forward to the next time I hear from you.
+
+Ever since you finished up at zones, I've been meaning to send over my thoughts
+and (probably ill-advised) life advice. Expect to hear from me about that soon,
+but for now, I wanted to say that I'm damn proud of you for what you
+accomplished in such a short career. It might not have been the ending you
+dreamed of, but I'm happy you took it through to the end and kept pushing even
+after a million roadblocks.
+
+Now that you're an old retired NARP who's soon to graduate, let's do some stupid
+shit. Let me know if you're down to climb Annapurna or make a gastronomy
+startup. I'm thinking we can do something that someone will write a book about
+someday. Let's brainstorm and see what we can make happen.
+
+Love you, man. Excited to see what the future holds for you, and happy birthday!
+
+Michael
+
+PS Yasmeen is pretty aight for setting this up. She hounded my ass to get me to
+write this on time (AKA she's a keeper).
+
+**14. Gina DiVittorio**
+
+Dear Sam,
+We weren't really friends in high school, but we are now and that's what's
+important. My fondest with you was when we for some reason ended up watching
+Lord of the Rings with Sean Weller and Rachel Samuels and you coined the phrase,
+"You don't travel to Mordor without getting a little gay." Anyways, against all
+the odds of being from Colorado Springs you've turned out to be a great kid and
+I think you've got a lot of great stuff ahead of you.
+
+**15. Sara Horne**
+
+Sam!!
+
+Thought you might be sick of reading a bunch of nice things about yourself, so
+this note will just be a tribute to the late, great Admiral Ackbar.  Gone too
+soon.  Who knew so many jokes, memories, memes would come out of our trip to
+that movie??  You’re such a wonderful person and it’s been so amazing getting
+closer with you and all of the guys over the past four (!!) years.  You can
+always put a smile on my (and everyone else’s) face, which is just the best.  
+You have so many amazing things ahead of you and I’m so excited we get to be
+there to watch your incredible achievements.  You guys are all so special to me
+and I’m so thankful for you!!!  Hope you have the best birthday.  Looking
+forward to all the years of Catan to come.
+
+Sara
+
+**16. Chuck Kalvaria**
+
+cha, can’t believe its already been three years of knowing you. I remember
+freshman year you were just that random kid in our fantasy football league
+because you were someones friends friends friend and you ended up crushing us
+all. Pledging with you was a blast. I remember walking back down washington
+just u and me and M&H because we had midterms the next day. That’s when we knew
+what we’d become. Great getting to know you buddy love you have a great day
+
+**17. Wyatt Navarro**
+
+Happy birthday, samwise. We only have a few more months before the real world
+but I’m trying to spend as much of those months watching Taylor swift music
+videos with the boys as possible. Congratulations on 4 years of successfully
+falling on your head and I hope you use some of your newfound free time to chill
+with your day ones. Enjoy your birthday, bro.
+
+**18. Colleen McHugh**
+
+Remember when we went to the Taylor Swift concert? I was always a fan, so when
+you invited me I was super excited. Of course, when we got there and found our
+seats at the front of the stage my jaw dropped a bit. It didn’t even matter that
+we were totally sober by then—it was the most fun I’ve ever had at a concert. I
+feel like that was the true blossoming of our  friendship… It has only gotten
+better and weirder and tighter from then, so thanks for opening that door. You
+are a brother to me, something that has been incredibly special and valuable to
+me during our time here. Much love, Colleen.
+
+**19. Michael Sheldon**
+
+Ya sorry it took so long I've been on a bender this weekend but just tell him I
+said lemme get uhhhhhh happy birthday, boi!
+
+**20. Gordon Moore**
+
+Two summers ago I rented a house in Boston with a Harvard Masters student I
+didn’t know (and his little brother), a Berkeley lightweight rower I didn’t
+know, and Sam. I didn’t know what to expect when I drove up to move in, but I
+was not expecting to embark on one of the best summers of my life. Sam truly
+made that summer a summer to remember. For a guy who’s no doubt going to change
+the world through medicine, Sam certainly knows how to have fun outside the lab.
+Whether it was a turn up Tuesday leading to a missed workday, dinner and margs
+at border cafe, caps in the living room, a couple bowls on the back porch, or a
+run to Felipe’s and jp licks, I knew that when I left work I was going to be
+having an amazing time. Sam single-handedly got me through the workday every day
+for eight weeks. Love you Cha and have an amazing birthday.
+
+**21. Aimee Foster**
+
+**22. Tyler Kaye**
+
+Love you boy. Cant wait for the next few weeks to help you understand how great
+the NARP life can be. We have had some awesome times and I can’t wait for many
+more. Will always remember our times shredding some good powder in Beaver and
+finding some other good stuff on the beach in Puerto Rico. Your energy is
+infectious and I can’t wait for many more (plus I still thank you every day for
+being the only one to tell a tame story of me at dinner with my parents in
+Colorado).
+
+**23. Zach Ridout**
+
+Salutations,
+
+Happy Birthday! It was great seeing you at Ivy's, let's do that again soon!
+Specifically wearing sick glasses and dabbing like it's 2016 (my peak year).
+
+Hope you're doing well and thriving as the sun comes around the corner and you
+start to see the daybreak of spring. Some of my best memories were from lounging
+around and enjoying the last few months I had at Princeton doing whatever I
+wanted, you should do the same.
+
+Also, 22 is a sick age, it's the pinnacle of youth. You're way more mature than
+lame ass 21 year olds drinking 40s and smoking weed like it's cool. You're in
+college, but you're also out of college with all the fun of being in college.
+You're cool, you make the money, you roll the nickels, so own it. Plus it's
+still acceptable to be attracted to 18 year olds. (Sorry Yasmeen)
+
+Have a good year man, see you in 2.5 months.
+
+https://www.youtube.com/watch?v=fGj77BrEgj4
+
+XOXOX
+Zach
+
+**24. Jess Hendricks**
+happy birthday sam! I can’t believe it’s been four years since we were getting
+drunk in our parents basements and hydroplaning in clifford while jammin our to
+our girl t.swift. 22 looks good on you! have another fun trip around the sun :^)
+xx jess!
+
+**25. Aaron Ach**
+
+Call for help if you stoop to the litterbox <3 -Aaron
+
+**26. Jess Buller**
+
+**27. Katrin**
+
+Happy Birthday Sam!!! Its been awesome getting to know you better this year.
+Thanks so much for all the hilarious memories and awesome post games.
+
+**28. Liam Fitzgerald**
+
+**29. Jeff Williamson**
 
 Dear Sam,
 It appears that you are now one year older relative to the last time I saw you.
@@ -197,163 +394,6 @@ we know.” – Ralph Waldo Emerson
 
 Always with love,
 Jeff
-
-**11. Nathan Makarewicz**
-
-Sam, what's good ho? I hope you're doing well and I can't wait to chill with you
-at reunions.  Happy birthday buddy. Finish this year strong
-
-**12. Grant Keating**
-
-Some of my favorite memories with ChaCha are from two summers ago when he lived
-in Boston with Gordon. From weekly dinners and drinks at Felipe, to two hour pho
-lunch breaks, to JP Licks Coffee Oreo, to blacking out on random Tuesday nights,
-every day we spent together was a blast. There are very few people in this world
-who can go from groundbreaking medical research to bumping Chill Bill while
-facing a bowl. Happy Birthday kid, love you to death and proud to call you a
-friend.
-
-**14. Peter Holt**
-
-Sam,
-Happy birthday!  I hope it’s a great one, and you should definitely eat a lot of
-beers.  I was thinking this week about my trip out to Colorado last summer;
-actually, I think about it a lot.  I know it was just a couple of days doing fun
-stuff, but it was great to meet your family and chill in the hot tub and in the
-mountains.  Most of all, I enjoyed hearing about all you have planned and where
-you want to go in medicine and in life.  You got some big dreams, buddy, but as
-you proved on Quandary, scaling mountains is what you do best.  I have no doubt
-you’ll crush the mountains you set for yourself moving forward, and I can’t wait
-until you get to the top and make a huge difference in this world.  If you ever
-need any help getting there, you know I’ll do everything I can to give you a
-hand (depending on the state of the Asian markets). I wouldn’t trade our
-friendship for anything, and I hope I’m always involved in whatever ridiculously
-cool thing you’re doing with your life.  You’re an incredible friend and you got
-a big heart.  I know neither of those things will ever change.  I hope this year
-is unbelievably special for you, and I’m looking forward to absolutely crushing
-this spring with ya.
-
-Sincerely,
-Peter
-
-**15. Michael Manhard**
-
-**16. Gina DiVittorio**
-
-**17. Sara Horne**
-
-Sam!!
-
-Thought you might be sick of reading a bunch of nice things about yourself, so
-this note will just be a tribute to the late, great Admiral Ackbar.  Gone too
-soon.  Who knew so many jokes, memories, memes would come out of our trip to
-that movie??  You’re such a wonderful person and it’s been so amazing getting
-closer with you and all of the guys over the past four (!!) years.  You can
-always put a smile on my (and everyone else’s) face, which is just the best.  
-You have so many amazing things ahead of you and I’m so excited we get to be
-there to watch your incredible achievements.  You guys are all so special to me
-and I’m so thankful for you!!!  Hope you have the best birthday.  Looking
-forward to all the years of Catan to come.
-
-Sara
-
-**18. Chuck Kalvaria**
-
-cha, can’t believe its already been three years of knowing you. I remember
-freshman year you were just that random kid in our fantasy football league
-because you were someones friends friends friend and you ended up crushing us
-all. Pledging with you was a blast. I remember walking back down washington
-just u and me and M&H because we had midterms the next day. That’s when we knew
-what we’d become. Great getting to know you buddy love you have a great day
-
-**19. Wyatt Navarro**
-
-Happy birthday, samwise. We only have a few more months before the real world
-but I’m trying to spend as much of those months watching Taylor swift music
-videos with the boys as possible. Congratulations on 4 years of successfully
-falling on your head and I hope you use some of your newfound free time to chill
-with your day ones. Enjoy your birthday, bro.
-
-**20. Colleen McHugh**
-
-Remember when we went to the Taylor Swift concert? I was always a fan, so when
-you invited me I was super excited. Of course, when we got there and found our
-seats at the front of the stage my jaw dropped a bit. It didn’t even matter that
-we were totally sober by then—it was the most fun I’ve ever had at a concert. I
-feel like that was the true blossoming of our  friendship… It has only gotten
-better and weirder and tighter from then, so thanks for opening that door. You
-are a brother to me, something that has been incredibly special and valuable to
-me during our time here. Much love, Colleen.
-
-**21. Michael Sheldon**
-
-Ya sorry it took so long I've been on a bender this weekend but just tell him I
-said lemme get uhhhhhh happy birthday, boi!
-
-**22. Gordon Moore**
-
-Two summers ago I rented a house in Boston with a Harvard Masters student I
-didn’t know (and his little brother), a Berkeley lightweight rower I didn’t
-know, and Sam. I didn’t know what to expect when I drove up to move in, but I
-was not expecting to embark on one of the best summers of my life. Sam truly
-made that summer a summer to remember. For a guy who’s no doubt going to change
-the world through medicine, Sam certainly knows how to have fun outside the lab.
-Whether it was a turn up Tuesday leading to a missed workday, dinner and margs
-at border cafe, caps in the living room, a couple bowls on the back porch, or a
-run to Felipe’s and jp licks, I knew that when I left work I was going to be
-having an amazing time. Sam single-handedly got me through the workday every day
-for eight weeks. Love you Cha and have an amazing birthday.
-
-**23. Aimee Foster**
-
-**24. Tyler Kaye**
-
-Love you boy. Cant wait for the next few weeks to help you understand how great
-the NARP life can be. We have had some awesome times and I can’t wait for many
-more. Will always remember our times shredding some good powder in Beaver and
-finding some other good stuff on the beach in Puerto Rico. Your energy is
-infectious and I can’t wait for many more (plus I still thank you every day for
-being the only one to tell a tame story of me at dinner with my parents in
-Colorado).
-
-**25. Zach Ridout**
-
-Salutations,
-
-Happy Birthday! It was great seeing you at Ivy's, let's do that again soon!
-Specifically wearing sick glasses and dabbing like it's 2016 (my peak year).
-
-Hope you're doing well and thriving as the sun comes around the corner and you
-start to see the daybreak of spring. Some of my best memories were from lounging
-around and enjoying the last few months I had at Princeton doing whatever I
-wanted, you should do the same.
-
-Also, 22 is a sick age, it's the pinnacle of youth. You're way more mature than
-lame ass 21 year olds drinking 40s and smoking weed like it's cool. You're in
-college, but you're also out of college with all the fun of being in college.
-You're cool, you make the money, you roll the nickels, so own it. Plus it's
-still acceptable to be attracted to 18 year olds. (Sorry Yasmeen)
-
-Have a good year man, see you in 2.5 months.
-
-https://www.youtube.com/watch?v=fGj77BrEgj4
-
-XOXOX
-Zach
-
-**26. Jess Hendricks**
-happy birthday sam! I can’t believe it’s been four years since we were getting
-drunk in our parents basements and hydroplaning in clifford while jammin our to
-our girl t.swift. 22 looks good on you! have another fun trip around the sun :^)
-xx jess!
-
-**27. Aaron Ach**
-
-Call for help if you stoop to the litterbox <3 -Aaron
-
-**28. Jess Buller**
-
-**29. Katrin/Sandy**
 
 **30. Yasmeen Almog**
 
