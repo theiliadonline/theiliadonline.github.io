@@ -79,6 +79,6 @@ I added an extra one because it's important. I know your 21st year hasn't been e
 
 So I don't know about you, but here's to feelin' 22. I am so proud of all the things you've accomplished so far and I can't wait to see what's in store. Thanks for letting me tag along for the ride. I hope you enjoy this birthday as much as I enjoyed your interpretation of the moth's voice from the fellowship of the ring <3
 
-🦃 I love you 🦃
+I love you 🦃
 
 Yasmeen
