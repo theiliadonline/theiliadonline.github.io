@@ -68,21 +68,7 @@ And we were so excited to see each other lmao
 
 Hbd Sam!!!!!!
 
-## **4. Scott Bechler**
-
-What’s up dude. Happy fuckin birthday. Remember that night of reunions when you
-got punched in the face and then later were pulling trig and projectile vomiting
-into the trash can amidst a circle of zetes? Have that mentality again tonight.
-And always, really. I know you’re balls deep in your thesis right now and
-focusing on all the shitty parts of it but don’t forget to admire all the epic
-parts about it as well. Most of all, make sure you tell a good story—that’s all
-anyone wants to read anyways. And a good story is all I want to hear when you
-tell me about your bday, so don’t let me down. Can’t wait til you all come to
-Southeast Asia post grad, it’s gonna be jokes.
-Much Love,
-Bechler
-
-## **5. Alex Lewis**
+## **4. Alex Lewis**
 
 It’s been so much fun being weird with you these last four years. Everyone has
 something to bring to the party: some people bring the newspaper, some people
@@ -91,6 +77,10 @@ warms me up when I’m feeling down. You light me up when you drop some FKJ on
 Saturday night at 2 AM. And you’re the fire when I’m gasoline… and thats when
 we make some of the dumbest decisions ever. Good thing you can’t spell dumbest
 without -best, so let’s keep being childish fools. Happy birthday Sam!!
+
+## **5. Aaron Ach**
+
+Call for help if you stoop to the litterbox <3 -Aaron
 
 ## **6. Alex Peters**
 
@@ -349,11 +339,21 @@ drunk in our parents basements and hydroplaning in clifford while jammin our to
 our girl t.swift. 22 looks good on you! have another fun trip around the sun :^)
 xx jess!
 
-## **25. Aaron Ach**
+## **25. Scott Bechler**
 
-Call for help if you stoop to the litterbox <3 -Aaron
+What’s up dude. Happy fuckin birthday. Remember that night of reunions when you
+got punched in the face and then later were pulling trig and projectile vomiting
+into the trash can amidst a circle of zetes? Have that mentality again tonight.
+And always, really. I know you’re balls deep in your thesis right now and
+focusing on all the shitty parts of it but don’t forget to admire all the epic
+parts about it as well. Most of all, make sure you tell a good story—that’s all
+anyone wants to read anyways. And a good story is all I want to hear when you
+tell me about your bday, so don’t let me down. Can’t wait til you all come to
+Southeast Asia post grad, it’s gonna be jokes.
+Much Love,
+Bechler
 
-## **26. Jess Buller**
+## **26. Jess Buller/Sandy Bole**
 
 ## **27. Katrin**
 
@@ -361,6 +361,10 @@ Happy Birthday Sam!!! Its been awesome getting to know you better this year.
 Thanks so much for all the hilarious memories and awesome post games.
 
 ## **28. Charlie Minns**
+
+Happy Birthday Sam! Thank you for being such a huge inspiration, both in and out
+of the pool; you've been a huge influence on my life here and I'm incredibly
+grateful. Have a wonderful birthday and break, looking forward to the Spring ❤️
 
 ## **29. Jeff Williamson**
 
