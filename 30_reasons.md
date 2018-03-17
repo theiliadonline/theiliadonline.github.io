@@ -353,7 +353,16 @@ Southeast Asia post grad, it’s gonna be jokes.
 Much Love,
 Bechler
 
-## **26. Jess Buller/Sandy Bole**
+## **26. Sandy Bole**
+
+Son, I'm sorry for being such a distant father lately. I am so proud of what you
+have achieved and absolutely amazed by your performance to get to NCAA's on your
+last year of competing. You are graduating to a new stage of life and I am
+stoked for all the fun you are about to experience. As Soprano once rapped
+"La vie ne se respire qu'une seule fois. Le bonheur, ca se vit sans aucunes
+lois." Enjoy your birthday and the remaining weeks at Princeton.
+Joyeux anniversaire,
+Ton papa
 
 ## **27. Katrin**
 
